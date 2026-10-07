@@ -1,0 +1,1 @@
+# kim-trades.com
